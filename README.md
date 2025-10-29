@@ -1,4 +1,4 @@
-                                                                                👋 Hi, I'm Kailas Shivaji Mande
+                  👋 Hi, I'm Kailas Shivaji Mande
 
 🎯 AI Developer | Full Stack Engineer | Cloud Enthusiast
 
