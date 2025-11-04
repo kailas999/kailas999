@@ -34,7 +34,7 @@ Cloud & DevOps: AWS | Azure | GCP | Docker | CI/CD
 
 💬 Let’s Connect
 
-📧 Email: kailasmandeshivaji@gmail.com
+📧 Email: kailasmande999@gmail.com
 
 💼 LinkedIn: linkedin.com/in/kailasmande
 
